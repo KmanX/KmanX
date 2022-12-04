@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KmanX
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning openAI
+- 💞️ I’m looking to collaborate on AI project
+- 📫 How to reach me cryprocoin@targumures.ro
